@@ -1,1 +1,0 @@
-# SunaAyhan.github.io
